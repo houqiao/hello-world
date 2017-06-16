@@ -2,7 +2,7 @@
 gtihub刚接触
 github制作和提交更改
 温馨提示：腾讯公司不会通过邮件来发布中奖信息。请勿轻信密保、汇款、中奖消息，勿轻易拨打陌生电话。详见反骗术中心。
- https://img.alicdn.com/imgextra/i3/332189337/TB2ZRyRkbRkpuFjSspmXXc.9XXa_!!332189337.png
+![image](https://img.alicdn.com/imgextra/i3/332189337/TB2ZRyRkbRkpuFjSspmXXc.9XXa_!!332189337.png)
 
 1 楼开拓者4分钟前
 获取【下载地址】   QQ: 313596790
